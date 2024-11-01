@@ -7,7 +7,7 @@
 - 💬 Ask me about anything
 - 📫 How to reach me: skunkkhole@gmail.com
 - 😄 Pronouns: she/her/hers
-- ⚡ Fun fact: I love looking up corny pick-up lines
+- ⚡ Fun fact: I love corny pick-up lines
 
 
 
